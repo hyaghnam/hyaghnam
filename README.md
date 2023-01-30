@@ -12,5 +12,5 @@
 My email is hyaghnam.26@acsamman.edu.jo
 
 
-![Ronaldo](https://user-images.githubusercontent.com/123442256/215436128-4a58db5a-309b-4dba-99b4-8b968d344a4b.jpeg)
+Ronaldo.jpeg
 
